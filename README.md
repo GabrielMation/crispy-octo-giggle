@@ -1,0 +1,1 @@
+what the fuck, dont look at this, this doesnt even work, it was gour years ago at the time of writing this, i was in highschool. I don't know what "Flappy blast.png" is supposed to be. i don't even fucking know why it's on github. smh
